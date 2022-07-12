@@ -1,1 +1,0 @@
-# SplashGG.github.io
